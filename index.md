@@ -1,5 +1,6 @@
 ---
 title: Złoty Kolczyk
+hide_title: true
 ---
 
 ## Nasze salony
