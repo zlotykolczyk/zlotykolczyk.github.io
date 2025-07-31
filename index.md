@@ -1,4 +1,6 @@
-# Złoty Kolczyk
+---
+title: Złoty Kolczyk
+---
 
 ## Nasze salony
 
