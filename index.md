@@ -4,13 +4,13 @@
 
 ## Nasze salony
 
+**Adres:** ul. Henryka Sienkiewicza 30, 25-507 Kielce.  
+**Telefon:** [+48 603 630 233](tel:+48603630233)
 
-- **Adres:** ul. Henryka Sienkiewicza 30, 25-507 Kielce  
-- **Telefon:** [+48 603 630 233](tel:+48603630233)
 
 
-- **Adres:** ul. Wesoła 36, 25-305 Kielce  
-- **Telefon:** [+48 504 493 926](tel:+48504493926) 
+**Adres:** ul. Wesoła 36, 25-305 Kielce.  
+**Telefon:** [+48 504 493 926](tel:+48504493926) 
 
 
 ## Znajdź nas w social mediach
