@@ -11,7 +11,10 @@
 ## Znajdź nas w social mediach
 [Facebook – Jubiler Złoty Kolczyk](https://www.facebook.com/p/Jubiler-Z%C5%82oty-Kolczyk-100063722314827/)  
 [Instagram – @bizuteria_zlotykolczyk](https://www.instagram.com/bizuteria_zlotykolczyk/)  
+
+## Kontakt
 [Napisz do nas na WhatsApp](https://wa.me/48504493926)
+[zlotykolczykkontakt@gmail.com](mailto:zlotykolczykkontakt@gmail.com)
 
 ## O nas
 
