@@ -13,7 +13,7 @@
 [Instagram – @bizuteria_zlotykolczyk](https://www.instagram.com/bizuteria_zlotykolczyk/)  
 
 ## Kontakt
-[Napisz do nas na WhatsApp](https://wa.me/48504493926)
+[Napisz do nas na WhatsApp](https://wa.me/48504493926)  
 [zlotykolczykkontakt@gmail.com](mailto:zlotykolczykkontakt@gmail.com)
 
 ## O nas
