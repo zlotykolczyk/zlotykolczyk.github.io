@@ -12,3 +12,7 @@
 [Facebook – Jubiler Złoty Kolczyk](https://www.facebook.com/p/Jubiler-Z%C5%82oty-Kolczyk-100063722314827/)  
 [Instagram – @bizuteria_zlotykolczyk](https://www.instagram.com/bizuteria_zlotykolczyk/)  
 [Napisz do nas na WhatsApp](https://wa.me/48504493926)
+
+## O nas
+
+Tradycja pielęgnowana w rodzinnej firmie od 1991 roku i podążanie za nowoczesnymi trendami sprawiły, że jesteśmy ekspertem w dziedzinie biżuterii. Wyroby jubilerskie oferowane w naszych salonach pozwolą zaspokoić potrzeby najbardziej wymagających klientów. Oferujemy duży wybór biżuterii najwyższej jakości wykonanej z 14-karatowego złota oraz srebra w przystępnych cenach.
